@@ -1,0 +1,2 @@
+We need A loaf of bread,salt,milk,egg,garlic,crushed crackers,meat for the patty,lettuce,mustard or 
+Worcester sauce,mozzarella cheese or normal cheese,onion,tomato,pepper,if you like you can add mushroom.
